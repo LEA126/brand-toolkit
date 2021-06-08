@@ -1,2 +1,2 @@
 # SnowCrash DAO brand toolkit
-Nora and Nora Logo will appear in more places.
+Nora and Nora logo will appear in more places.
